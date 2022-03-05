@@ -1,1 +1,1 @@
-# Some projects created by the chebbi4m
+# Some projects created by THE chebbi4m
